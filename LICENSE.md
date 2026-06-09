@@ -1,4 +1,4 @@
-# 
+# Nouveau GlassWire outils pour Mac OS | Exclusif GlassWire outils pour PC Windows. Avec mise en cache des données et analyse des ports — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
